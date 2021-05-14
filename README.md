@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @willtheus139
 - 👀 I’m interested in ...cops
 - 🌱 I’m currently learning ...cops
-- 💞️ I’m looking to collaborate on ... youtube
+- 💞️ I’m looking to collaborate on ... youtube and cops
 - 📫 How to reach me ...willtheus110206@gmail.com
 
 <!---
